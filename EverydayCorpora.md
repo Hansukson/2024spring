@@ -19,3 +19,7 @@ it up on our way home from school. (SP:FY5PS000) And how often was this (unclear
 
 4. BNC -linger
 5. We shall not linger in Kursk itself but wander gently down a side road through this part of the Central Agricultural Region until we reach the Nikol'skaia volost' (cluster of villages) roughly 40 km. to the south-east (Roslavl' lay 110 km. from Smolensk).
+
+6. CoCA - released
+
+I was released with an " arthritis " diagnosis. Infectious diseases, Rheumatoid, Orthopedics, and Dermatology all saw me. (Dermatology because at the time I had large skin legions on my back that wouldn't heal for over 3 years that bled constantly). Some were over 10cm's big. They nailed me with everything then I was released as a " Can't fix it " case. My wife and I then went to Thailand which we had booked much earlier before all this and I has a terrible trip as you can imagine. However my skin legions actually healed up! Now they're just massive Keloid scars some of which Ive had Tattoo'ed over to hide. # By the Summer that year (so 2008) my Right Knee, Left Hip and Right Hip all became SEVERELY swelled for no real apparent reason. I had seen my Rheu-Doc several times with no real
